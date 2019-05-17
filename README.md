@@ -10,3 +10,5 @@ And the  time of him being in an alien form which was limited previously, now ha
 Some technical additions have also been made to the aliens in the omnitrix, to power them more.
 (Eg :Heatblast had been given water resistant  tech to prevent him from being put off by water)
 Research in labs have also been progressing to develop more similar ones to that of omnitrix,by taking experiments with the one that of ben.
+He also trained himself in defence skills.
+And got a protective armour which stays hidden until need arises,and also some new tech powerful weapons.
